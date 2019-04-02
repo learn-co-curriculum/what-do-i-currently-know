@@ -18,4 +18,4 @@ In order to get the most from this curriculum, it's helpful to center on your ow
 
 This reflection exercise will help you rate your own skills and knowledge, so that you know where you need to focus your learning.
 
-Fill out this [Growth Form](https://docs.google.com/forms/d/e/1FAIpQLSd3cEfE2VhCtLZVro9XcXiCG8ZgZWdSRRJmywAzgwGxUJljZg/viewform) and 
+Fill out this [Growth Form](https://docs.google.com/forms/d/e/1FAIpQLSd3cEfE2VhCtLZVro9XcXiCG8ZgZWdSRRJmywAzgwGxUJljZg/viewform) and review your reflection and goals with your SPM.
